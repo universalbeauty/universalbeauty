@@ -4,4 +4,4 @@
 
 <div align="center">
   
-  [rentry](https://rentry.co/universalbeauty)  ❀  [atabook](https://universalbeauty.atabook.org/)  ❀  [sp](https://nephelae.straw.page/)  ❀  gimmick pg tba! </p></div>
+ ❀ [rentry](https://rentry.co/universalbeauty)  ❀  [atabook](https://universalbeauty.atabook.org/)  ❀  [sp](https://nephelae.straw.page/)  ❀  [gimmicks](https://argentilovenotes.straw.page/) ❀ </p></div>
