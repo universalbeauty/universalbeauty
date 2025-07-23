@@ -1,4 +1,6 @@
 
 <img src="https://files.catbox.moe/voc6y3.PNG"/>
 
-<p align="center"> stiiil figuring this out gimme a bit gang...
+<div align="center">
+  
+  [rentry](https://rentry.co/universalbeauty)  ❀  [atabook](https://universalbeauty.atabook.org/)  ❀  [sp](https://nephelae.straw.page/)  ❀  gimmick pg tba! </p></div>
