@@ -1,5 +1,6 @@
 
-<img src="https://files.catbox.moe/voc6y3.PNG"/>
+<div align="center">
+<img src="https://files.catbox.moe/kv23ea.png"/> </div>
 
 <div align="center">
   
